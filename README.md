@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Agricultural economics in Walaita Sodo university 
 - 💞️ I’m looking to collaborate on web development, app development 
 - 📫 How to reach me t.me/ebii2041
-- 😄 Pronouns: ...
+- 😄 Pronouns: Ebi Eba
 - ⚡ Fun fact: God's love 
 
 <!---
